@@ -1,1 +1,1 @@
-This is Ori Amrani portfolio.
+This is Ori Amrani's portfolio.
